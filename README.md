@@ -1,2 +1,2 @@
 # emanh1.github.io
-My GitHub page (has no use now tho)
+dis is my github page which i use as a cdn (pls dont sue me github thx)
